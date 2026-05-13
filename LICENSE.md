@@ -1,4 +1,4 @@
-# 
+# smart Automation for Adobe InDesign for macOS - AI-assisted design and collaboration is the best Adobe InDesign for macOS automation, featuring AI-assisted design and
 
 
 
